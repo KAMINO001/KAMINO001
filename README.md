@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KAMINO001 (Kamino, also Giuseppe)
+- 👋 Hi, I’m @KAMINO001 (Kamino)
 - 👀 I’m interested in Games, Art, Music, Crypto.
 - 🌱 I’m currently learning Networking
 - 📫 How to reach me? https://twitter.com/Kamino_Prime
